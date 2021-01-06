@@ -1,3 +1,4 @@
-# [Reporte de incumplimiento](https://docs.google.com/spreadsheets/d/1gW6Co9JRbOcx9BB4_bU-0Fw6ue7erwP9AmDwUamszCI/edit?usp=sharing)
+# Reporte de incumplimiento
+[QB](https://docs.google.com/spreadsheets/d/1T0SXT01V0STvH-umj_X7TzANdwbjf3KoTeRrjoMYwjs/edit?usp=sharing) | [SH](https://docs.google.com/spreadsheets/d/1v_RJx4Td5yqgUxlQ61t6VoJjsSjGiNZmwiwKLkD3Q8s/edit?usp=sharing) | [EA](https://docs.google.com/spreadsheets/d/1IV_goZzPWRtV1miwo0ftoojTk-NxIfly9iodJJD7oB4/edit?usp=sharing)
 
-# [Tutores](https://drive.google.com/drive/folders/1c-a4vOA8-nrMKHBYIULSv2_DmGEv64vw?usp=sharing)
+# Tutores
