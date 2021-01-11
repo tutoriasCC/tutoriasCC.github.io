@@ -10,5 +10,5 @@
 
 | [Cuarto A](https://forms.gle/r6q76vwTvAHF2UVt7) | [Cuarto B](https://forms.gle/8KH2RLAByos2VhRX8) | [Cuarto C](https://forms.gle/Kq8EQjSxNq9tKgcQ8) 
 | [Cuarto D](https://forms.gle/ZE6GZXR7d56ohDpE8) | [Cuarto E](https://forms.gle/6BrTo5KtAF4wWwX99?usp=sharing) | [Segundo A](https://forms.gle/w8AaGdmPPjbsPzfZ9) |
-| [Segundo B](https://forms.gle/vhnWvyqRH6QXHFgq5) | [Segundo C]https://forms.gle/V55ZmG9Vwhg6UQX8A) |     [SH](https://forms.gle/aYZNNqTxRyZ7iT218)    |
+| [Segundo B](https://forms.gle/vhnWvyqRH6QXHFgq5) | [Segundo C](https://forms.gle/V55ZmG9Vwhg6UQX8A) |     [SH](https://forms.gle/aYZNNqTxRyZ7iT218)    |
 |     [QB](https://forms.gle/HQBpP1TS7em2JMVDA)    |     [FM](https://forms.gle/daqkByRJif3CLwJe8)    |     [EA](https://forms.gle/TfA3odekugAiL3Uz5)    |
